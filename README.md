@@ -1,0 +1,2 @@
+# tamplet_ipank
+cxafdfnhmul,mbjuo865653437uuj,vgbxzfdee5olj
